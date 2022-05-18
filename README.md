@@ -10,11 +10,12 @@ https://www.twitch.tv/swavyl/clip/SecretiveSneakyBananaOhMyDog-8asKtlzVp-fYJCdq
 
 
 ## shit
-https://www.twitch.tv/swavyl/clip/GlutenFreePlacidLionDBstyle-rFGA5gArbiw9R1mJ
 
 https://www.twitch.tv/swavyl/clip/SaltyWrongGarbageANELE-nS27boV5AxSx335E
 
 https://www.twitch.tv/swavyl/clip/FunBombasticStapleNononoCat-jo8dN3OvriRwqRj2
+
+https://www.twitch.tv/swavyl/clip/GlutenFreePlacidLionDBstyle-rFGA5gArbiw9R1mJ
 
 
 ## motherfucker
